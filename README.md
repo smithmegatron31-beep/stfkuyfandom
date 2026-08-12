@@ -1,3 +1,4 @@
+<meta name="google-site-verification" content="Iagftu7SIo6EhkgY0cN3tqg29rPlS7DDZFJrr44CFZ0" />
 # stfkuyfandom
 details achievements of students
 
